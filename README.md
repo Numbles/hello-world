@@ -1,2 +1,4 @@
 # hello-world
-newbies be like.
+
+Like The Exorcist, but more break-dancing. 
+

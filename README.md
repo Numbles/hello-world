@@ -1,2 +1,4 @@
 # hello-world
-newbies be like.
+
+I like doing hoodrat stuff with my friends and scratching dog bellies.  
+
